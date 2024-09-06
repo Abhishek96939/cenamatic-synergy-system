@@ -1,0 +1,1 @@
+# cenamatic-synergy-system
